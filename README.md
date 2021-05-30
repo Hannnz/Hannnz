@@ -2,7 +2,7 @@
 
  👀 I’m interested in UX/UI, web and mobile development & gaming industry
 
-💞️ I’m open for collaboration and commissions, next free spot starting in 25th June 2021
+💞️ I’m open for collaboration and commissions, next free slot opening in 25th June 2021
 
 📫 Find all my links in [linktree](https://linktr.ee/hvnnvh)
 
