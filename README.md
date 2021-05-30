@@ -1,12 +1,10 @@
 👋 Hi, I’m @Hannnz
 
- 👀 I’m interested in web and mobile development & gaming industry
+ 👀 I’m interested in UX/UI, web and mobile development & gaming industry
 
-🌱 I’m currently learning theme development in WordPress
+💞️ I’m open for collaboration and commissions, next free spot starting in June 25th 2021
 
-💞️ I’m open for collaboration and commissions!
-
-📫 Find me in [Behance](https://www.behance.net/hannaharjula) + [my own website](https://student.labranet.jamk.fi/~K1407/)
+📫 Find all my links in [linktree](https://linktr.ee/hvnnvh)
 
 <!---
 Hannnz/Hannnz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
