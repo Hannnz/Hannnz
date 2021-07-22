@@ -1,8 +1,4 @@
-👋 Hi, I’m @Hannnz
-
- 👀 I’m interested in UX/UI, web and mobile development & gaming industry
-
-💞️ I’m open for collaboration & commissions
+👋 Hello
 
 📫 Find all my links in [linktree](https://linktr.ee/hvnnvh)
 
